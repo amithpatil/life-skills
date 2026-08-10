@@ -1,4 +1,4 @@
-## Listening and Active Communication Assignment
+## Listening and Assertive Communication Assignment
 
 #### Question 1: What are the steps/strategies to do Active Listening? (Minimum 6 points)
 Steps/strategies for active listening:
